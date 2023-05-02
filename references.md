@@ -1,3 +1,1 @@
-# References
-
-* octocat 1 😈
+I am creating my own conflict, my name is John Eric
